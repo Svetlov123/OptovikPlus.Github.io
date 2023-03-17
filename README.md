@@ -1,1 +1,0 @@
-# OptovikPlus.github.io
